@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **officialsagar006@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1KSjg4do-2vwtb5EtIBTBw8xjyQjMnBXv/view?usp=sharing](https://drive.google.com/file/d/1KSjg4do-2vwtb5EtIBTBw8xjyQjMnBXv/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1fpsSQ3-TFbHvym8Fia-MxJG7F0othIM0/view)
 
 - ⚡ Fun fact **i am an engineer**
 
